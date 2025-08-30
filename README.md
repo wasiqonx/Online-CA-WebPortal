@@ -39,7 +39,7 @@ This project is licensed under the [MIT License](https://github.com/WASCIV/Forev
 
 ## Follow me on Instagram
 
-Don't forget to follow me on Instagram [@wasiqhatesinsta](https://www.instagram.com/wasiqhatesinsta/) for more projects and updates!
+Don't forget to follow me on Instagram [@wasiqhatesinsta](https://www.instagram.com/wasiqonx/) for more projects and updates!
 
 
 ## Join Us On Telegram
